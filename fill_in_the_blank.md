@@ -2,6 +2,35 @@
 
 ## Section 1: Parts of a Pauline Letter
 
+1. Praescriptio
+The greeting.
+- Part A: Identification of sender and
+  recipients. This is where Paul says
+  "grace and peace."
+- Part B: Thanksgiving. Usually thanking
+  God for some good thing that the
+  community has.
+
+2. Exordium
+Brief introduction that sets the tone.
+
+3. Narratio
+Tells the backstory of the current
+situation.
+
+4. Propositio
+The thesis of the epistle.
+
+5. Probatio
+The proof of the thesis.
+
+6. Exhortatio
+Emotional appeal to do what Paul has
+proved you should do.
+
+7. Postscriptum
+Parting salutation, concluding prayer.
+
 ## Section 2: Revelations and Fuentes
 
 ### Revelations (4 schools of analysis)
