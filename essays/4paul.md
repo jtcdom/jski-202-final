@@ -65,7 +65,7 @@ We are justified not by
 circumcision, but by "faith working
 through love" (Gal 5:6).
 
-##### What does Paul mean by faith?
+#### What does Paul mean by faith?
 1. trust 
 2. intellectual assent
 3. the grace that helps you to have intellectual assent
@@ -74,7 +74,7 @@ through love" (Gal 5:6).
 
 Luther has first 3/4, but paul has all 5 (because "lived belief" is works).
 
-##### How Unrighteous Larry is saved.
+#### How Unrighteous Larry is saved:
 To be saved, Larry must first recieve
 God's free gift of Prevenient Grace.
 Then, he must cooperate with God's
