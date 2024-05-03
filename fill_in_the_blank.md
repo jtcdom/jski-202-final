@@ -31,9 +31,34 @@ proved you should do.
 7. Postscriptum
 Parting salutation, concluding prayer.
 
-## Section 2: Revelations and Fuentes
+## Section 2: Revelation and Fuentes
 
-### Revelations (4 schools of analysis)
+### Revelation (4 schools of analysis)
+
+1. Preterist
+All of the events prophesied in
+Revelation happened in the age of the
+first Christians.
+
+2. Futurist
+The events prophesied in Revelation
+have not happened yet, so when they
+happen you'll know that the world is
+about to end.
+
+3. Historical
+All/most of the events prophesied in
+Revelation have happened already, but
+they were spread throughout history and
+not just in the age of the first
+Christians.
+
+4. Idealist
+The prophecies in Revelation do not
+refer to singular events, but rather to
+_types_ of events that will occur in
+every age, e.g., both Nero and Hitler
+were "The Antichrist."
 
 ### Fuentes (naming epistles by their topics)
 
