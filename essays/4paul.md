@@ -72,7 +72,8 @@ through love" (Gal 5:6).
 4. the thing believed 
 5. lived belief
 
-Luther has first 3/4, but paul has all 5 (because "lived belief" is works).
+Luther has first 3/4, but paul has all 5 
+(because "lived belief" includes works, Luther rejects it).
 
 #### How Unrighteous Larry is saved:
 To be saved, Larry must first recieve
