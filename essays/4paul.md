@@ -55,10 +55,10 @@ help to engage the Lutheran theology of
 
 ### Why was the law given?
 1. Because of transgressions.
-2. To protect Israel from the sinful
-   world.
-3. Ask Jski about this one. I can only
-   find 2 in the passages he points out.
+2. To drive home recognition that Israel is
+   sinful.
+3. To protect Israel from the sinful
+   world (like a paedegogos).
 
 ### Contra Luther
 We are justified not by
