@@ -9,8 +9,10 @@ _20 points_
 
 _20 points_
 - Fill in the blank of 4 schools of
-  Revelations, plus the Fuentes pauline
-  reading, e.g. "Paul's book of -------
+  Revelations. Fill in the blank for the [Fuentes guide
+  to Paul's epistles](fuentes_guide_to_paul.pdf).
+  The Fuentes questions will be like "Paul's letter
+  to the -------
   is about X and Y."
 
 _30 points_
